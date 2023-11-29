@@ -1,4 +1,5 @@
 im a fu###cking loser
-i cabt code for shit
+i can't code for shit
 i got doxxed by "frenns" 🐸🐸🐸
-i suck my dads didk
+i suck my dads dick
+my mom issa whor
